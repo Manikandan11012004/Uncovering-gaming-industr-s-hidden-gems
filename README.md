@@ -1,1 +1,1 @@
-# Uncovering-gaming-industr-s-hidden-gems
+# Uncovering-gaming-industry-hidden-gems
